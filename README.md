@@ -23,7 +23,7 @@
 
 <img align="right" width="400" height="410" alt="image" src="https://github.com/user-attachments/assets/97540a67-93b9-4c48-aa21-f78e2adb4e9a" />
 
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=ffd375&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=7e5487&interchange=false&profanity=false&bar_color=53558d&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 <p align="left">                ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧  </p> 
 
