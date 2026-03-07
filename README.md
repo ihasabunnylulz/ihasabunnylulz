@@ -29,8 +29,8 @@
 
  <p align="left">      ◌Ი𐑼 ◞ im a minor / artist .  </p> 
 
-  <p align="center"> <sub> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ <a href="https://ihasabunnylulz.atabook.org/">꒰꒰ atabook ‎ 𓏵.  ꒱
- ‎‎ ‎‎ ‎<a href="https://secretlymarkirl.straw.page">ꉹ  ֪݃ ݂۫   ˖ straw 𓎟𓎡 ݂ </a> </sub> </p>
+  <p align="center"> ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ <a href="https://ihasabunnylulz.atabook.org/">꒰꒰ atabook ‎ 𓏵.  ꒱
+ ‎‎ ‎‎ ‎<a href="https://secretlymarkirl.straw.page">ꉹ  ֪݃ ݂۫   ˖ straw 𓎟𓎡 ݂ </a> </p>
 
  <p align="left">      ◌Ი𐑼 ◞ credit to the artists ! ! .  </p> 
 
