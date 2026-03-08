@@ -38,10 +38,6 @@
 
 <p align="right">                ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧  </p> 
 
-
-   ![Tumblr_l_565392041140544 (1)](https://github.com/user-attachments/assets/1fd50498-5954-4a9d-9bbb-f333d448a92d)
-
-
-<p align="center"><img src="https://github.com/user-attachments/assets/75478ffa-2716-41fd-bf02-b3a31b7fb625" </p>
-
+&nbsp;<div align="center"  >
+  ![](https://github.com/user-attachments/assets/1fd50498-5954-4a9d-9bbb-f333d448a92d)
 
