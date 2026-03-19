@@ -41,3 +41,6 @@
 &nbsp;<div align="center"  >
   ![](https://github.com/user-attachments/assets/1fd50498-5954-4a9d-9bbb-f333d448a92d)
 
+<img width="780" height="910" alt="Untitled1424_20260314160502" src="https://github.com/user-attachments/assets/d4912ec3-dbf0-4d3f-b6eb-25801ecd4ec5" />
+
+THANKK U @iTrapped2012  FOR THIS AWESOME DRAWING U MADE FOR ME :-))) I LOVE IT SOOO MUCH HEHEHE
