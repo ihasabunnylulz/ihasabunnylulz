@@ -1,6 +1,6 @@
 <img aling="right" width="574" height="238" alt="image" src="https://github.com/user-attachments/assets/a0ac0092-62a3-4483-b523-88bb78a011b4" /> 
 
-<p align="left">              ME ITRAPPED TURD // art by @iTrapped2012 </p> 
+<p align="left">              ME , ITRAPPED, GOURMAND // art by @iTrapped2012 </p> 
 
 
 
