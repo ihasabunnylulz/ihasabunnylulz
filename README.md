@@ -1,3 +1,9 @@
+<img aling="right" width="574" height="238" alt="image" src="https://github.com/user-attachments/assets/a0ac0092-62a3-4483-b523-88bb78a011b4" /> 
+
+<p align="left">              ME ITRAPPED TURD // art by @iTrapped2012 </p> 
+
+
+
 ⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=30&pause=1000&color=000000&background=BD0404&center=true&width=435&lines=%22this.+is.not.+a.+daycare%22)
 
 <img align="left" width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/3bdcb5eb-36bf-4d14-bb16-1eaef9810dcc" /> 
