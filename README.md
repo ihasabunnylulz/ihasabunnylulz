@@ -38,7 +38,7 @@
  <p align="left">      ◌Ი𐑼 ◞ im a minor / artist .  </p> 
 
   <p align="center"> ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ <a href="https://rerooted.atabook.org/">꒰꒰ atabook ‎ 𓏵.  ꒱
- ‎‎ ‎‎ ‎<a href="https://secretlymarkirl.straw.page">ꉹ  ֪݃ ݂۫   ˖ straw 𓎟𓎡 ݂ </a> </p>
+ ‎‎ ‎‎ ‎<a href="https://bunnybunnies.straw.page">ꉹ  ֪݃ ݂۫   ˖ straw 𓎟𓎡 ݂ </a> </p>
 
  <p align="left">      ◌Ი𐑼 ◞ credit to the artists ! ! .  </p> 
 
